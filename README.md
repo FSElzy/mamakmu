@@ -1,0 +1,2 @@
+# mamakmu
+Fck you
